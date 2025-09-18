@@ -11,3 +11,4 @@
 
 [RIT Homepage](https://www.rit.edu/)
 
+![alt text]([image.jpg](https://cdn-useast1.kapwing.com/static/templates/staring-avatar-guy-meme-template-full-439b18bc.webp))
