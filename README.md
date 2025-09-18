@@ -11,4 +11,4 @@
 
 [RIT Homepage](https://www.rit.edu/)
 
-![alt text](<img width="680" height="510" alt="image" src="https://github.com/user-attachments/assets/d0212c03-ef79-44f2-9d88-5596c7cfecaa" />)
+![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.kapwing.com%2Fexplore%2Fstaring-avatar-guy-meme-template&psig=AOvVaw0Sr-NKHEajhQOLS7EQdKAB&ust=1758308269046000&source=images&cd=vfe&opi=89978449&ved=0CBYQjRxqFwoTCLjx_Pz-4o8DFQAAAAAdAAAAABAn)
